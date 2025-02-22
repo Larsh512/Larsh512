@@ -4,5 +4,3 @@
 -  How to reach me ... Discord: larsh512
 -  Pronouns: ... he/him
 -  Fun fact: ... I have Autism And adhd.
-
-  Currently working on: Enderweb rewritten.
